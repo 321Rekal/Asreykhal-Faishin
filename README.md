@@ -1,1 +1,3 @@
-# Asreykhal-Faishin
+# Halo semua! 
+
+Perkenalkan nama saya **Asreykhal Faishin**
